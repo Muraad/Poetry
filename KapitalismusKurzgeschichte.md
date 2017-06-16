@@ -3,6 +3,10 @@ Capitalism is the only organic, self organized, emergent social system. The most
 
 ### Work in progress
 
+### Ein Platz in der Sonne
+
+### A place in the sun
+
 
 Es war einmal vor langer Zeit ein junger Mann der sich ein schönes Stück land aussuchte auf dem er sich niederlassen wollte um alleine sein Reich zu bauen.
 Er träumte davon wie er einen Garten anlegen würde. Mit verschlungenen Wegen und einem Stück gepflasterten Boden um sich gemütlich
