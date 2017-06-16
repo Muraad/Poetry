@@ -1,3 +1,5 @@
+Capitalism is the only organic, self organized, emergent social system. The most natural thing for humans, driven by the human mind, its egoism and its impuls to expand. The only social system that was there before someone gave it a label. 
+
 
 ### Work in progress
 
