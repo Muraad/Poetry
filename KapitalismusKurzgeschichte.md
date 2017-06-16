@@ -25,6 +25,6 @@ In kurzer Zeit hatte er eine Gerätschaft entwickelt die Steine in einem zehntel
 Als er genügend Steine produziert hatte belud er einen Wagen und fuhr zum nächsten Ort um die Steine zu verkaufen. Viele freuten sich 
 über den verbilligten Preis der Steine. Schließlich wollte jeder seinen eigenen Platz in der Sonne in seinem eigenen Reich, das man nicht teilen wollte
 mit anderen. Der Ort mit dem findigen Erfinder schloss sich zusammen um immer mehr Steine zu verkaufen und die Steinproduktion voran zu treiben. Viele Frauen zog es nun in diesen Ort
-da dort jeder seinen eigenen Platz in der Sonne hatte, und die Arbeiter immer reicher wurden. In den anderen Orten wurden die viele neidisch. 
-Manche verloren ihre Arbeit da ihre Steine zu teuere waren. 
+da dort jeder seinen eigenen Platz in der Sonne hatte, und die Arbeiter immer reicher wurden. In den anderen Orten wurden viele neidisch. 
+Manche verloren ihre Arbeit da ihre Steine zu teuere waren. Da sie neidisch waren, manche ihre Frauen verloren hatten oder kein Geld mehr hatten um ihre Familie zu ernähren fingen sie an den reicheren Ort anzugreifen. Sie versuchten Steine zu stehlen. Der reiche Ort fing umgehen an andere dafür zu bezahlen sie zu schützen. Steine gab es genug also wurde eine große Mauer um den Ort gebaut. 
 
